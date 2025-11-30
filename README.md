@@ -1,1 +1,0 @@
-# EatMore-Mobile-Application
